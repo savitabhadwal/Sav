@@ -1,2 +1,3 @@
-# Sav
-No Bio
+### *Still thinking...*
+Are 🐿️ funny?
+~~maybe not.~~
